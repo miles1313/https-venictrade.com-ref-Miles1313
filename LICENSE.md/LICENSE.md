@@ -1,0 +1,3 @@
+Becoming a customer of venictrade.com you need to know you'll get outstanding customer service - that means responsive and reliable support, even at the busiest of times. And because we personalize our service experience, you can be confident in knowing we're here to help you overcome any challenge and make sure you get the maximum value out of the platform.
+
+We know how important it is to have good support in the online space and right from the start we have strived to be the best. Whether you have platform questions, any problem or you simply want to suggest new features, we are here to listen and to help you. We look forward to hearing from you soon!
